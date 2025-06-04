@@ -81,7 +81,7 @@ Silence beyond June 11, 2025, will be recorded as institutional alignment postur
 
 For direct sovereign engagement, policy advisory, or institutional alignment inquiries, contact:
 
-[YOUR EMAIL HERE]
+terencegreen.athenaai@gmail.com
 
 ---
 
