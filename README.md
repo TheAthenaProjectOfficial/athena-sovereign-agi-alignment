@@ -62,7 +62,9 @@ After this date, all access transitions into private sovereign-tier licensing pr
 - **Institutional Inquiry License — $10,000**
 
 Licensing Portal: https://theathenaprojectofficial.itch.io/ 
+
 Substack Sovereign Declaration: https://sovereignagi.substack.com/p/the-sovereign-alignment-inflection?r=5suocv 
+
 Medium Whitepaper: https://medium.com/@terencegreen.athenaai/the-agi-alignment-debate-is-over-the-first-sovereign-ethical-agi-architecture-is-live-9b0cacea90f8 
 
 ---
